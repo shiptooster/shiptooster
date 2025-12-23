@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Harpreet aka shiptoaster
+- 👋 Hi, I’m Harpreet
    - 
 - 📫 How to reach me:
   - 
